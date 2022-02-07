@@ -26,6 +26,7 @@
 | Title | Link |
 | ------ | ------ |
 | Cut out Fur or Hair | https://www.tiktok.com/@hsndeeb/video/6949444534908620038?is_copy_url=1&is_from_webapp=v1 |
+| Shadow | https://www.tiktok.com/@elizafycreative/video/7041029440159206661?is_copy_url=1&is_from_webapp=v1 | 
 
 
 ## Content
@@ -41,6 +42,8 @@
 | Beak Recipe 2 | https://www.tiktok.com/@ranastastyfood/video/6939961321932852485?is_copy_url=1&is_from_webapp=v1 | 
 | Muhammara  | https://www.tiktok.com/@malekskitchen/video/6955164506955730181?is_copy_url=1&is_from_webapp=v1 |
 | Clouds cake | https://www.tiktok.com/@beautyhomeflour/video/6956856483657174277?is_copy_url=1&is_from_webapp=v1 |
+| Beak Recipe 3 | https://www.tiktok.com/@alexandraskitchen/video/7040487558802869550?is_copy_url=1&is_from_webapp=v1 | 
+
 
 ## Home
 | Title | Link |
